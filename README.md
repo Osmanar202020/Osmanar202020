@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MrDooTech
+- 👀 I’m interested in ... Tech
+- 🌱 I’m currently learning ... Tech
+- 💞️ I’m looking to collaborate on ... Tech
+- 📫 How to reach My Youtbe Chanel
